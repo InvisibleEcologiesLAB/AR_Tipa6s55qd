@@ -1,1 +1,0 @@
-# AR_Tipa6s55qd
